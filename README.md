@@ -1,4 +1,6 @@
 # v1maret
 
-test
-belajar
+bismillahirrahmanirrahim
+semoga masih work dan bermanfaat
+
+thanks
